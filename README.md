@@ -1,1 +1,1 @@
-Restaurante Gastronomia Moçambicana 
+Restaurante MOÇAMBICANA 
